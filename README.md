@@ -11,7 +11,7 @@ Thus, I would like to ask for three favors,
 3: If i try to come back out of my isolation, DO NOT ALLOW ME TO. Do whatever you need, rebuke me, block me, dont allow me to come back, you do this for my sake.
 
 Finally, I would like to thank you all for being my friend and spending time with me. I was honored to have your time. If you need anything, feel free to contact me on Steam
-Fallen, you're about the only person that still checks my github, so if you wish, you may give this message to others like sodium or david. (not gb or reset)
+Fallen, you're about the only person that still checks my github, so if you wish, you may give this message to others like sodium or david. 
 
 The website didn't commit, so i put this here.
 
